@@ -1,2 +1,1 @@
-you IP activate for neverlose
-Thanks for subscribing:)
+Таблетки уже не спасают, но я зачем-то юзаю
